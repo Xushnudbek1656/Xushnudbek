@@ -1,2 +1,0 @@
-# Xushnudbek
-Zoʻr sayt
